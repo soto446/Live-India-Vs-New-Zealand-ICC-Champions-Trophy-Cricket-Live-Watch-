@@ -11,9 +11,9 @@ Team Form & Key Players
 # India:
 India enters the contest with strong momentum, boasting a formidable batting lineup led by Rohit Sharma and Virat Kohli. The middle order, featuring Shubman Gill and Suryakumar Yadav, adds stability, while Hardik Pandya provides firepower in the lower order. The bowling attack, spearheaded by Jasprit Bumrah and Mohammed Siraj, will be key in restricting the Kiwi batters.
 
-✅ [Watch Now Final Match Ind vs NZ](https://cricbuzz.com)
+✅ [Watch Now Final Match Ind vs NZ](https://cricpitch.xyz)
 
-✅ [Watch Now Final Match Ind vs NZ](https://cricbuzz.com)
+✅ [Watch Now Final Match Ind vs NZ](https://cricpitch.xyz)
 
 # New Zealand:
 New Zealand, known for their resilience, will rely on Kane Williamson’s leadership and batting prowess. Devon Conway and Daryl Mitchell add solidity to the top order, while Glenn Phillips and Jimmy Neesham bring explosiveness. The pace duo of Trent Boult and Tim Southee will look to challenge the Indian batsmen, with Ish Sodhi handling spin duties.
